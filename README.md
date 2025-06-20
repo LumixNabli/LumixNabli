@@ -1,4 +1,4 @@
-### Hi there 👋 I'm Lamis
+### 👋  Hi, I'm Lamis!
 🎓 I'm currently an IT student 
 🔍 Looking for new opportunities to learn and contribute 
 ## 🌐 Socials:
